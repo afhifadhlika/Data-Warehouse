@@ -35,3 +35,5 @@
 
 ### [Deck](https://drive.google.com/file/d/1rldNn-m5UGIhdtZ4EcmFWl-Fpykulnyy/view?usp=sharing)
 
+### [Details](https://drive.google.com/drive/folders/1chbGRMhFFy8FWkdsQCJG02PfeZSF7tS8?usp=sharing)
+
